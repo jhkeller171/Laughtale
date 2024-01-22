@@ -1,1 +1,2 @@
 # Laughtale
+Wealth, fame, power...  James Keller, the King of Cisco, obtained this and everything else the world had to offer and his dying words drove countless souls to the seas."You want my treasure?  You can have it!  I left everything I gathered together in one place!  Now you just have to find it!" These words lured men to the Grand Line.  In pursuit of dreams greather than they've ever dared to imagine!  This is the time known as the 'Great Cisco Era'!"
